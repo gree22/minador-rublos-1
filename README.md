@@ -1,0 +1,1 @@
+# minador-rublos-1
